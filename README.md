@@ -10,7 +10,6 @@
 <p align="left">
   <img src="https://resizing.flixster.com/-XZAfHZM39UwaGJIFWKAE8fS0ak=/v3/t/assets/p23034094_v_v8_ae.jpg" width="250" >
 </p>
-🎧 You’ll usually find me vibing to songs by **TXT, ENHYPEN, TWS, Cortis**, and random popular tracks that just *hit*. 
 
   ## 🐶 Meet My Dog — Yuki! ❄️
 
