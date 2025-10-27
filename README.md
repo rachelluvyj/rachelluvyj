@@ -8,7 +8,7 @@
 
 🎬 I *absolutely love* the movie **20th Century Girl** (don’t talk to me about that ending 😭💔).
 <p align="center">
-  <img src="[https://i.imgur.com/YOURTOPIMAGE.png](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.rottentomatoes.com%2Fm%2F20th_century_girl&psig=AOvVaw0p7B6JDqLeAzGYAjcZUps5&ust=1761650856269000&source=images&cd=vfe&opi=89978449&ved=0CBUQjRxqFwoTCOD4u4KjxJADFQAAAAAdAAAAABAE)" width="250" >
+  <img src="https://resizing.flixster.com/-XZAfHZM39UwaGJIFWKAE8fS0ak=/v3/t/assets/p23034094_v_v8_ae.jpg" width="250" >
 </p>
 🎧 You’ll usually find me vibing to songs by **TXT, ENHYPEN, TWS, Cortis**, and random popular tracks that just *hit*. 
 
