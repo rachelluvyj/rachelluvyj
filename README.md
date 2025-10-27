@@ -7,7 +7,7 @@
 💭 My MBTI is **ISTP-A** — basically cool, calm, and secretly chaotic hehe 😎  
 
 🎬 I *absolutely love* the movie **20th Century Girl** (don’t talk to me about that ending 😭💔).
-<p align="center">
+<p align="left">
   <img src="https://resizing.flixster.com/-XZAfHZM39UwaGJIFWKAE8fS0ak=/v3/t/assets/p23034094_v_v8_ae.jpg" width="250" >
 </p>
 🎧 You’ll usually find me vibing to songs by **TXT, ENHYPEN, TWS, Cortis**, and random popular tracks that just *hit*. 
