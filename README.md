@@ -23,5 +23,20 @@ She’s basically the real main character in my life 😌
 
 🏀 Used to play **basketball**, and honestly... not that bad at it 😉  
 💌 Currently have no hobby except existing and pretending that’s productive ✨  
+## 🌈 My Favorites 
+
+🍰 **Food:** Ice cream, tteokbokki, buldak, and literally anything sweet 😋  
+☁️ **Color:** sky blue 🎀   
+🧸 **Things I Love:** Cozy playlists, sunsets, my blanket and scrolling on tiktok 😅  
+
+---
+
+## 🌼 Fun Facts About Me
+
+🌙 I laugh at my own jokes 
+🐕 Yuki and I have matching moods: sleepy, hungry, and slightly dramatic.  
+💌 I type “i love yeonjun” way too much.
+🌸 I probably say “just one more episode” 12 times a night 😭  
+
 
 🐥 Thanks for visiting! Feel free to leave a ⭐ on one of my projects (I’ll probably cry from happiness hehe).
