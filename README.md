@@ -17,7 +17,7 @@
 This is **Yuki**, my adorable **Shiba Inu** 🐕💕  
 She’s basically the real main character in my life 😌  
 
-<p align="center">
+<p align="left">
   <img src="https://i.pinimg.com/736x/b5/a8/4a/b5a84abf0118b853f7d2bde236e0dd5c.jpg" width="250" alt="Yuki the Shiba Inu">
 </p>
 
