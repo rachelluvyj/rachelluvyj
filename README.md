@@ -28,8 +28,6 @@ She’s basically the real main character in my life 😌
 ☁️ **Color:** sky blue 🎀   
 🧸 **Things I Love:** Cozy playlists, sunsets, my blanket and scrolling on tiktok 😅  
 
----
-
 ## 🌼 Fun Facts About Me
 
 🌙 I laugh at my own jokes 
@@ -38,4 +36,4 @@ She’s basically the real main character in my life 😌
 🌸 I probably say “just one more episode” 12 times a night 😭  
 
 
-🐥 Thanks for visiting! Feel free to leave a ⭐ on one of my projects (I’ll probably cry from happiness hehe).
+🐥 Thanks for visiting!
